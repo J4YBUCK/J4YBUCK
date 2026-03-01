@@ -16,4 +16,4 @@
 
 <sub><p> $${\color{#940303}JAY / BUCK (He/They)}$$</p></sub>
 
-<sub><br> $${\color{#940303}Commissions are open!}$$</sub>
+<sub><br> $${\color{#940303}Commissions \space are \space open!}$$</sub>
