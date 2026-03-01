@@ -16,5 +16,6 @@
 
 ## <sub><p> $${\color{#940303}JAY / BUCK (He/They)}$$</p></sub>
 
-<br> <sup> $${\color{#940303}Commissions \space are \space open!}$$
-<br>Commission me on [Tiktok](https://www.tiktok.com/@jayybucksszz)
+<br> $${\color{#940303}Commissions \space are \space open!}$$
+<br>Commission me on [Tiktok](https://www.tiktok.com/@jayybucksszz) !
+<br> 
