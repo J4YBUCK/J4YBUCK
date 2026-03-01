@@ -20,4 +20,4 @@
 <br>$${\color{#e00b0b}Commission \space me \space on \space my :}$$
 [Tiktok!](https://www.tiktok.com/@jayybucksszz)
 <p><br>$${\color{#e00b0b}- \space Malaysian!}$$</p>
-<br>$${\color{#e00b0b}- \space MARVEL/DC!}$$
+<p><br>$${\color{#e00b0b}- \space MARVEL/DC!}$$</p>
