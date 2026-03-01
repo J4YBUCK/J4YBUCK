@@ -14,8 +14,9 @@
 <img width="99" height="54" alt="image" src="https://github.com/user-attachments/assets/70ae4e2b-bdc3-4b52-9d71-b1e2842780f2" />
 
 
-## <sub><p> $${\color{#940303}JAY / BUCK (He/They)}$$</p></sub>
+### <sub><p> $${\color{#940303}JAY / BUCK (He/They)}$$</p></sub>
 
-<br> $${\color{#940303}Commissions \space are \space open!}$$
-<br>Commission me on [Tiktok](https://www.tiktok.com/@jayybucksszz) !
-<br> 
+<br>$${\color{#940303}Commissions \space are \space open!}$$
+<br>$${\color{#e00b0b}Commission \space me \space on \space [Tiktok](https://www.tiktok.com/@jayybucksszz) !
+<br>$${\color{#e00b0b}- \space Malaysian!
+<br>$${\color{#e00b0b}- \space MARVEL/DC!
