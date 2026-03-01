@@ -14,4 +14,4 @@
 <img width="99" height="54" alt="image" src="https://github.com/user-attachments/assets/70ae4e2b-bdc3-4b52-9d71-b1e2842780f2" />
 
 
-<p><sub> $${\color{#940303}JAY / BUCK (He/They)}$$</sub></p>
+<sub><p> $${\color{#940303}JAY / BUCK (He/They)}$$</p></sub>
