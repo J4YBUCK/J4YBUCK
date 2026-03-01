@@ -20,5 +20,9 @@
 <br>$${\color{#e00b0b}Commission \space me \space on \space my :}$$
 [Tiktok!](https://www.tiktok.com/@jayybucksszz)
 
+
 <p><br>$${\color{#e00b0b}- \space Malaysian!}$$</p>
 <p><br>$${\color{#e00b0b}- \space MARVEL/DC!}$$</p>
+
+
+<img width="385" height="131" alt="image" src="https://github.com/user-attachments/assets/c77d1b3a-4696-4d57-922c-bc49293f6711" />
