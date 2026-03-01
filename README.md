@@ -26,3 +26,6 @@
 
 
 <img width="385" height="131" alt="image" src="https://github.com/user-attachments/assets/c77d1b3a-4696-4d57-922c-bc49293f6711" />
+
+
+$${\color{#940303}Be \space my \friend! \space I \space don't \space bite<3}$$
