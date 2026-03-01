@@ -17,6 +17,6 @@
 ### <sub><p> $${\color{#940303}JAY / BUCK (He/They)}$$</p></sub>
 
 <br>$${\color{#940303}Commissions \space are \space open!}$$
-<br>$${\color{#e00b0b}Commission \space me \space on \space my :
+<br>$${\color{#e00b0b}Commission \space me \space on \space my :}$$
 <br>$${\color{#e00b0b}- \space Malaysian!}$$
 <br>$${\color{#e00b0b}- \space MARVEL/DC!}$$
